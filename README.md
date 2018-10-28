@@ -1,4 +1,4 @@
-![](https://bit.ly/2Ob8v8kg)
+![](https://psmoduly.cz/588-thickbox_default/google-ecommerce-google-analytics-mereni-konverzitransakci.jpg)
 
 The 80/20 rule has proven true for many businesses–only a small percentage of customers produce most of the revenue. As such, marketing teams are challenged to make appropriate investments in promotional strategies.
 
